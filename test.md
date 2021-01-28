@@ -1,0 +1,1 @@
+<img src=\"https://bit.ly/3iVaChB\" alt=\"Alternate Text\" style=\"width:50%\"/>
