@@ -1,1 +1,0 @@
-![Alternate Text](https://bit.ly/3iVaChB)\n
